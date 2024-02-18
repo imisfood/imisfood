@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://caterpie.crd.co/assets/images/gallery28/306d84fe.png?v=55641fe5)ㅤㅤ**~~KY~~** ㅤ𓎟 ㅤ***MINOR***ㅤㅤ![](https://caterpie.crd.co/assets/images/gallery28/dc1be573.png?v=55641fe5)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image-425x425](https://github.com/imisfood/imisfood/assets/130332213/c73ee15b-681f-4618-9bbc-2e1e1f7c5944)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image-425x425](https://github.com/imisfood/imisfood/assets/130332213/c73ee15b-681f-4618-9bbc-2e1e1f7c5944)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤdead plate enjoyer
 
