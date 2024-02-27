@@ -1,6 +1,6 @@
 
-ㅤㅤㅤ**~~KY~~** ㅤ𓎟 ㅤ***MINOR***
+ㅤㅤㅤ**KY**
 
-ㅤㅤㅤㅤoften distractedㅤ⟢ㅤdead plate enjoyer
+ㅤㅤㅤㅤoften distractedㅤ.ㅤw2i always
 
- ㅤㅤㅤ⠀ྀིㅤfeel free to intㅤ.ㅤi enjoy conversationsㅤ.ㅤc+h
+ㅤㅤㅤㅤminorㅤ.ㅤbored 24/7
