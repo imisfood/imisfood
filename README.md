@@ -1,6 +1,6 @@
 
-ㅤㅤㅤ**KY**
+ㅤㅤㅤ
 
-ㅤㅤㅤㅤoften distractedㅤ.ㅤw2i always
+ㅤㅤㅤㅤponytownerㅤ.ㅤw2i
 
 ㅤㅤㅤㅤminorㅤ.ㅤbored 24/7
